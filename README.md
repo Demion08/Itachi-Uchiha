@@ -1,0 +1,2 @@
+# Itachi-Uchiha
+Amaterasu
